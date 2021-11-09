@@ -1,1 +1,1 @@
-# SofiaKazanska.github.io
+# Sofia-Kazanska.github.io
